@@ -1,4 +1,4 @@
-#  
+#  Experience rivals like never before with rivals Scripts elite, the #1 Script. Includes fly and speed for unbeatable performance.
 
 
 
